@@ -1,2 +1,3 @@
 # Message-to-the-officials-of-European-and-Asian-countries-affected-by-the-attack-on-Iran
 Dear official of the EU and Asia I Know you are affected please do whatever you can to end the war in Iran forever put pressure on trump and Israel to hands off the Iran 
+from now on gather in street of your country and start the anti war protest and put pressure on trump and Israel to emd the war in Iran forever the protest in. street and x com and all social media must happen 24/7 till war in iran ended forever the permanent agreement must be reach with iran and nuclear issues and sanction must be lifted deae china and Pakistan work with iran diplomat till agreement reached and war ended forever in Iran Gaza lebonan Ukraine thank you 
